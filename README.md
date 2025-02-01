@@ -1,2 +1,2 @@
 # Java
-if you dee this you gay
+if you see this you gay
